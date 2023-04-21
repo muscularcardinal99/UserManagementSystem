@@ -4,7 +4,7 @@
 
 ## Authors
 
-- [@muscularcardinal99](https://www.https://github.com/muscularcardinal99)
+- [@muscularcardinal99](https://www.https:/github.com/muscularcardinal99)
 
 
 ## 🚀 About Me
